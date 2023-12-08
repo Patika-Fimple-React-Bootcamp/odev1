@@ -1,2 +1,2 @@
 
-[odev1_canlı_Bas_Bas](https://endearing-bombolone-3144ad.netlify.app/)
+[odev1_canlı_TIKLA](https://endearing-bombolone-3144ad.netlify.app/)
